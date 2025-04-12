@@ -1,1 +1,2 @@
 # bio
+critical thinking, innovative, creative, positive minded and solution oriented personality. I am graduating from the College of William and Mary, Raymond A Mason School of Business in May 2025 as Master of Science in Business Analytics. I specialize in Stochastic Model, Artifical Intelligence, Machine Learning, Big Data, Database Management, Data Visualization etc. I am efficient in programming languages like python, R, Java. I work well individually and in a team to achieve overall objective 
